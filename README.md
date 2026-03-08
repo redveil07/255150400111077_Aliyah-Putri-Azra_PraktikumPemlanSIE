@@ -1,2 +1,1 @@
-# aliyah-nugas
-jkjdslsjl
+TUGAS PRAKTIKUM ALIYAH
